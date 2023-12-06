@@ -2,6 +2,8 @@ I think the allow to scam there users they are invole on
 also this is how they just take my money from my account -$21 
 shame on this guys how they talk with client 
 
+https://anti-captcha.com
+
 # anti-captcha
 Ты не охуел там часом? Это тебе не доска жалоб блять. -$21 штрафа.
 <img width="1067" alt="Screenshot 2023-12-06 at 13 21 11" src="https://github.com/AddaMeSPB/anti-captcha/assets/8770772/026167da-ed7e-4d09-b053-0eb6b951a4ad">
